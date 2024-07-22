@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ella-brook
+- 👀 I’m interested in SEO.
+- 🌱 I’m currently learning SEO.
